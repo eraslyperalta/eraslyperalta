@@ -1,7 +1,8 @@
 ### Hello my name is Erasly Peralta ✨
 
--I am currently a professional model for an agency and also participate in beauty pageant competitions such as miss among others
--I pass on the message leadership and empowerment of women to young girls👯
+-I am currently a professional model for an agency and also participate in beauty pageant competitions such as miss among others.
+I pass on the message leadership and empowerment of women to young girls👯
+
 -Course the first year of the career of biomedical engineering in instrumentation⚡
 I aspire to specialize in Porothesis Design😄
 
